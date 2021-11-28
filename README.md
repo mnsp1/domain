@@ -4,7 +4,7 @@
 看片站长建议狼友
 ### Ctrl+D 收藏本页面 本页随时更新最新地址，永远找到回家路
 
-## 本 站 永 久 域 名 : https://mnsp1.com
+## 本 站 永 久 域 名 : http://mnsp1.com
 
 ## 本 站 最 新 域 名 : https://mn015.com
 
@@ -22,7 +22,7 @@
 
 看片提醒您请注意，永久地址一定要加https
 
-[如网站被屏蔽，在其它浏览器上无法观看，请下载chrome浏览器](https://mnsp1.com/chrome.apk) 
+[如网站被屏蔽，在其它浏览器上无法观看，请下载chrome浏览器](http://mnsp1.com/chrome.apk) 
 
 看片邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 mnsk12345678@gmail.com
 
