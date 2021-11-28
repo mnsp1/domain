@@ -8,7 +8,7 @@
 
 ## 本 站 最 新 域 名 : https://mn015.com
 
-## 易记方法 : mn015.com  至   mn019.com  都是本站域名
+## 易记方法 : 美女拼音首字母 ：mn 加上 顺序数字 015  至  019 都是本站域名 如下面：
 
 [看片最新地址一 点击此处](https://mn015.com/) https://mn015.com
 
@@ -22,7 +22,7 @@
 
 看片提醒您请注意，永久地址一定要加https
 
-[如网站被屏蔽，请下载chrome浏览器](https://mnsp1.com/chrome_93.0.4577.82.apk) 
+[如网站被屏蔽，请下载chrome浏览器](https://mnsp1.com/chrome.apk) 
 
 看片邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 mnsk12345678@gmail.com
 
